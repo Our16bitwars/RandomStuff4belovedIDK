@@ -18,3 +18,11 @@ I love u :3 /p !!
 
 
 ![IMG_2377](https://github.com/user-attachments/assets/a362b98b-4871-4fee-926d-8c9a2ff09934)
+
+
+
+# Fanart hehhhh ruko and toya !!! (Privet privet 2009,,,)
+
+
+
+<img width="689" height="551" alt="無題6519_20250815134954" src="https://github.com/user-attachments/assets/19f1e6d8-2ee2-454a-9863-d520297bc738" />
