@@ -26,3 +26,9 @@ I love u :3 /p !!
 
 
 <img width="689" height="551" alt="無題6519_20250815134954" src="https://github.com/user-attachments/assets/19f1e6d8-2ee2-454a-9863-d520297bc738" />
+
+
+
+# I,,,,, Old asf drawinv
+
+<img width="1378" height="1378" alt="511 Sem Título_20250822144628" src="https://github.com/user-attachments/assets/4a651e79-db76-484e-aa05-2d5920579ad7" />
