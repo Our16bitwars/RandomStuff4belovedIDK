@@ -32,3 +32,8 @@ I love u :3 /p !!
 # I,,,,, Old asf drawinv
 
 <img width="1378" height="1378" alt="511 Sem Título_20250822144628" src="https://github.com/user-attachments/assets/4a651e79-db76-484e-aa05-2d5920579ad7" />
+
+
+# namida 
+
+<img width="689" height="551" alt="無題6527_20250823212320" src="https://github.com/user-attachments/assets/df03d043-8f46-4c3c-8b5b-00dda8edc3d9" />
