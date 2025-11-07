@@ -37,3 +37,10 @@ I love u :3 /p !!
 # namida 
 
 <img width="689" height="551" alt="無題6527_20250823212320" src="https://github.com/user-attachments/assets/df03d043-8f46-4c3c-8b5b-00dda8edc3d9" />
+
+
+
+# Tinted skin gift!
+
+<img width="689" height="559" alt="Untitled217_20251107095854" src="https://github.com/user-attachments/assets/82d7842d-76f4-4b21-ac12-a1677aef239b" />
+
