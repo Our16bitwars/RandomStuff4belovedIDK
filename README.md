@@ -56,7 +56,3 @@ I love u :3 /p !!
 
 
 
-# FACE REVEAL?!
-
-![IMG_1986](https://github.com/user-attachments/assets/1d8b1e44-90d7-4db6-9cc8-da8952a5dbe5)
-
