@@ -1,3 +1,12 @@
+# Im fishing gng
+
+
+![IMG_1985](https://github.com/user-attachments/assets/ff248142-f55c-4665-92f5-e79409b13378)
+
+
+
+
+
 # kaboom 1
 
 PS RAMS U CAN EDIT/ADD MESSAGES HERE BTW !!
@@ -43,4 +52,5 @@ I love u :3 /p !!
 # Tinted skin gift!
 
 <img width="689" height="559" alt="Untitled217_20251107095854" src="https://github.com/user-attachments/assets/82d7842d-76f4-4b21-ac12-a1677aef239b" />
+
 
