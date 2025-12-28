@@ -1,3 +1,15 @@
+# .
+
+
+
+![IMG_2663](https://github.com/user-attachments/assets/c287b92e-595a-4e45-afbb-4f08a5c99b05)
+
+
+
+
+
+
+
 # Im fishing gng
 
 
